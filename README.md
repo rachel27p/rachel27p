@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rachel
+- 👀 I’m interested in technology
+- 🌱 I'm currently studying on Informatics major in Udayana University
+- 📫 Contact me: pasaribu.2308561113@student.unud.ac.id
+- ⚡ Fun fact: I am new at this
